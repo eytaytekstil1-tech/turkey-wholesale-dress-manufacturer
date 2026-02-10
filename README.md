@@ -1,4 +1,3 @@
-README.md
 # Turkey Wholesale Dress Manufacturer – Ey-Tay Tekstil
 
 Ey-Tay Tekstil is a direct manufacturer specializing in wholesale evening dresses, wholesale dresses, and boutique clothing production in Turkey since 1975. With decades of production experience, the company supplies high-quality fashion products to boutiques, wholesalers, and fashion retailers worldwide.
